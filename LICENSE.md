@@ -1,4 +1,4 @@
-#  
+#  blade ball hidden Script is the best blade ball Script, featuring aimbot and no clip. Safe and powerful for all your needs.
 
 
 
